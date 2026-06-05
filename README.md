@@ -1,0 +1,1 @@
+i JUST made this today pls dont judge its a firmware like bruce or cat hack but i wouldnt say better since i only added a few things like ability to check sd card so you could download games like doom or smth
